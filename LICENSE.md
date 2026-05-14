@@ -1,4 +1,4 @@
-
+Download steal a brainrot Scripts advanced for steal a brainrot, the best script available, featuring no cooldown and no clip. This powerful tool ensures you have the upper hand
 
 
 
